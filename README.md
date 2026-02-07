@@ -19,6 +19,8 @@
 
 ☁️ I like Serapherd, HolyGates, Guitarspear etc! Not a huge shipper but they cute!
 
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/7192dad7-317b-4555-a286-40c917ad49a4" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d1fadd02-392d-4c4b-adb8-473cc8f47a7b" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c6714e78-5e11-494f-bdaa-587f2307eef1" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/9abd0d0b-0abe-4c37-ab4e-9d46a7d1c8a5" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/97986dc1-58fb-4678-bc08-d93d4d81a57c" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5d7520aa-9b6a-4df7-9d12-3d6043382d16" />
+
+
 
 
