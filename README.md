@@ -19,6 +19,8 @@
 
 ☁️ I like Serapherd, HolyGates, Guitarspear etc! Not a huge shipper but they cute!
 
+☁️ I get confused easy.. ok? BE REAL WITH ME!! If I bother you be honest cause i can be a looooot. Be patient with me!! I have audhd and some other disorders C:
+
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e0371b9-9c4b-4324-8422-e406ead82ded" />
 
 ---
